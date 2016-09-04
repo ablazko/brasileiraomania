@@ -1,2 +1,0 @@
-# brasileiraomania
-Brasileirão Mania
